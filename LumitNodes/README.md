@@ -1,0 +1,1 @@
+# Some gifs and videos that i make for [LumitNodes](https://discord.gg/pB9qxujnkJ)
