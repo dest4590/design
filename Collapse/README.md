@@ -1,0 +1,1 @@
+# Assets for [CollapseLoader](https://collapseloader.org)
